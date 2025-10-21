@@ -1,4 +1,4 @@
-<img width="65" height="8141" alt="image" src="https://github.com/user-attachments/assets/018a09d3-47cb-41e2-b8e8-0de038a8c745" />https://redirect.camfrog.com/redirect/?url=https%3A%2F%2Fkuenstlernetzwerk-sw.de‎
+https://redirect.camfrog.com/redirect/?url=https%3A%2F%2Fkuenstlernetzwerk-sw.de‎
 https://www.cssdrive.com/?URL=kuenstlernetzwerk-sw.de‎
 https://pl.grepolis.com/start/redirect?url=https%3A%2F%2Fkuenstlernetzwerk-sw.de
 https://www.webclap.com/php/jump.php?url=https%3A%2F%2Fkuenstlernetzwerk-sw.de‎‎
